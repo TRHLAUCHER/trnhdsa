@@ -1,0 +1,1 @@
+Bu Botu Alman Kaiseri Yapmıştır
